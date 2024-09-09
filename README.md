@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RajaMehtab777
-- 👀 I’m interested in educartion
+- 👀 I’m interested in education
 - 🌱 I’m currently learning science and coding
 - 💞️ I’m looking to collaborate on multiple softwares
 - 📫 How to reach me RajaMehtab777
